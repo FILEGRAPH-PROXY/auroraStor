@@ -14,4 +14,3 @@ Google Play Dependency removed permanently.
 👉 Stable, Clean and Legal 100% with dark mode.
 
 ❇️@PRO24P
-دانلود:https://t.me/c/1156489806/18270
